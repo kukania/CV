@@ -80,7 +80,7 @@ RESEARCHER Feb. 2018 ‑ Present
 
 #### Apr. 2019 Student Travel Grant ,The Association for Computing Machinery (ACM), ASPLOS’19 U.S.A
 
-### SCHOLARSHiP
+### SCHOLARSHIP
 
 FEBRUARY 23, 2024 JUNSU IM · RÉSUMÉ 1
 
